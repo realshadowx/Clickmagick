@@ -1,5 +1,7 @@
 # Clickmagick Coupon Code 2025 - Claim 79% Discount 🔥
 
+Hello folks, Amir here.
+
 With exclusive coupon codes for 2025, you can claim up to [79% off on your ClickMagick subscription](https://www.clickmagick.com/)!
 
 ## ClickMagick Coupon

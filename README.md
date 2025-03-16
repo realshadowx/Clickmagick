@@ -2,13 +2,13 @@
 
 Hello folks, Amir here.
 
-With exclusive coupon codes for 2025, you can claim up to [79% off on your ClickMagick subscription](https://www.clickmagick.com/)!
+With exclusive coupon codes for 2025, you can claim up to [79% off on your ClickMagick subscription](https://clickmagick.com/go/shadowx)!
 
 ## ClickMagick Coupon
 
 Claim 79% discount on ClickMagick subscription and save $65 annually. This is a limited-time offer, get it now.
 
-[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://www.clickmagick.com/)
+[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://clickmagick.com/go/shadowx)
 
 ## Top ClickMagick Coupon Codes for 2025
 
@@ -35,7 +35,7 @@ Claim 79% discount on ClickMagick subscription and save $65 annually. This is a 
 
 With these fantastic deals, you can experience ClickMagick’s powerful tracking tools while saving a significant amount. Whether you’re just starting out or looking to upgrade to a higher-tier plan, there’s a coupon for you!
 
-[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://www.clickmagick.com/)
+[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://clickmagick.com/go/shadowx)
 
 ## How to Redeem ClickMagick Coupon Codes?
 
@@ -51,7 +51,7 @@ Redeeming your ClickMagick coupon is a breeze. Just follow these easy steps:
 
 It’s that simple to claim your savings and start using ClickMagick to optimize your marketing campaigns!
 
-[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://www.clickmagick.com/)
+[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://clickmagick.com/go/shadowx)
 
 ## ClickMagick Pricing Breakdown
 
@@ -70,7 +70,7 @@ With the CLICK79 coupon, you can get the Pro Plan for just $41.63 in your first 
 
 Whether you're starting with the Basic Plan or opting for the Pro Plan, you can take advantage of these discounts and get even more value for your money!
 
-[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://www.clickmagick.com/)
+[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://clickmagick.com/go/shadowx)
 
 ## About ClickMagick
 

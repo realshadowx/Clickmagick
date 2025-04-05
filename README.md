@@ -1,10 +1,28 @@
-# Clickmagick Coupon Code 2025 - Claim 79% Discount 🔥
+# Clickmagick Discount Code 2025 - 79% OFF Coupon
 
 Hello folks, Amir here.
 
 With exclusive coupon codes for 2025, you can claim up to [79% off on your ClickMagick subscription](https://clickmagick.com/go/shadowx)!
 
-## ClickMagick Coupon
+## Save 20% on ClickMagick Starter Plan
+
+Enjoy a 20% discount on the Starter plan. This plan includes up to 10,000 clicks per month, the TrueTracking® Platform, real-time stats and reports, basic bot filtering, and support for one website or e-commerce store. Offer valid until April 30, 2025. Start optimizing your marketing efforts today!​
+
+[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://clickmagick.com/go/shadowx)
+
+## Get 25% Off ClickMagick Standard Plan
+
+Upgrade to the Standard plan and save 25%. This plan offers up to 100,000 clicks per month, support for five websites or e-commerce stores, three team members, one-year data retention, and advanced features like Auto Cost Update and Audience Optimization™. Hurry, this offer expires on May 15, 2025. Enhance your tracking capabilities now!​
+
+[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://clickmagick.com/go/shadowx)
+
+## 30% Discount on ClickMagick Pro Plan
+
+Take advantage of a 30% discount on the Pro plan. This plan includes up to 1,000,000 clicks per month, unlimited websites or stores, unlimited team members, unlimited ad accounts, and all features from the Standard plan. Offer available until June 1, 2025. Scale your marketing efforts with ClickMagick's most comprehensive plan!​
+
+[![Discount button](https://github.com/user-attachments/assets/940387a2-249c-4062-97ea-7f0106171042)](https://clickmagick.com/go/shadowx)
+
+## ClickMagick Coupons
 
 Claim 79% discount on ClickMagick subscription and save $65 annually. This is a limited-time offer, get it now.
 
